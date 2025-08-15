@@ -42,8 +42,8 @@ Developing automation tools to **simplify buying and selling processes** using a
 
 ## 🤝 Let's Connect
 
-- 💼 [**LinkedIn:**](https://www.linkedin.com/in/harsh-mishra-b906771a9/)
-- 📧 [**Email:**](mailto:mharsh911@gmail.com)
+- 💼 [**LinkedIn**](https://www.linkedin.com/in/harsh-mishra-b906771a9/)
+- 📧 [**Email**](mailto:mharsh911@gmail.com)
   
 ---
 
